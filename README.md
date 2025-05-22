@@ -1,4 +1,4 @@
-# Elementor Coupon Codes, Free Trial & Offers 2025
+# Elementor Coupon Codes 2025 (45% Discount Offer)
 
 **Elementor** is a premium WordPress page builder plugin designed to empower users to create stunning, professional websites without coding expertise. Its intuitive drag-and-drop interface, extensive template library, and robust features make it a go-to tool for web designers, developers, freelancers, bloggers, and small business owners. 
 
